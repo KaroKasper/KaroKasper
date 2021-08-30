@@ -3,6 +3,7 @@
 - 📫 How to reach me kasperhamre@gmail.com 
 
 I live in scandinavia-Norway
+   
    link to some of my current work -
    
    
